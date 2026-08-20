@@ -82,8 +82,8 @@ bends to stress, but not in the same way. The question is, is political affiliat
 in predicting how circumstantial stress affects decision-making? 
 
 **The death of Western liberalism means the death of perspective wanting to keep matters open-ended.** 
-Here is a multiple choice question. Would that be prejudice, a defense mechanism, ignorance, all of the 
-above, or a combination of two? I did not start out life automatically reaching for conclusion of belief 
+Here is a multiple choice question. Would that be prejudice, a defense mechanism, ignorance, a combination 
+of two, or all of the above? I did not start out life automatically reaching for conclusion of belief 
 on the darkness of humanity, the inevitable betrayals based on foundations promised in talk and writing 
 but fallacious in actuality. I do not intend to trouble myself with answering to the unknown when to 
 answer means to blindly submit. This intent does not rest on Tabulavasa. It is indeed based on the 
