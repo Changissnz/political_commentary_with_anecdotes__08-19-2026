@@ -64,7 +64,7 @@ that, "corporatist-statist"? In the second article, I called the American Republ
 the Socialist-Capitalist Party because that's just how I feel about how it's been doing 
 things. Laughably, the American Republican Party has done a much finer job of implementing 
 the principle of "capitalism for the poor, socialism for the rich" than the American Democratic 
-Party. Since the Obama years, the years when my mind was mature enough to become politically 
+Party. Since the Obama years, the years when my mind matured enough to become politically 
 observant, it is just my opinion that the Democrats have tried to accommodate for 
 historically marginalized groups, groups that might have been imperiled without stronger 
 government backing, on foundations of operating losses. It is not as though American Democrats 
