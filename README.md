@@ -52,7 +52,7 @@ the United States.
 
 **I believe most of the Christian clergy is benign.** Accommodations from and involving any clergy 
 may not be, either through repression (right-wing) or over-expansion (left-wing). In purist terms, 
-although practice has long past purity, his religious dichotomy runs inverse to the political dichotomy 
+although practice has long past purity, this religious dichotomy runs inverse to the political dichotomy 
 (repression as left-wing through statism and over-expression as right-wing through commerce). Yes, it 
 is a flawed division of understanding complexities and multipolarities. But rationality rarely steps 
 outside of division by two before division by more. Some Christians believe that schism is a 
