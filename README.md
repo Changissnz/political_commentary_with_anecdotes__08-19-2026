@@ -91,5 +91,9 @@ psychology of thinking they already know what they want, based on spotty informa
 empiricism for embarking on objectives. Is it insane to think that the minds of every person that 
 matters have already been at least half-made up? That's the question, not just for me. 
 
+**I did not include personal anecdotes in this series because of Italian culture. I read somewhere 
+once of a professor of Italian heritage that loved using anecdotes in his lectures. Culture. What 
+culture.**
+
 **If you make a humble man feel like a stranger in his own country, he'll resign in the 
 boundaries given to him. If you do the same to a woman, she'll become a prostitute.** 
