@@ -86,9 +86,9 @@ Here is a multiple choice question. Would that be prejudice, a defense mechanism
 of two, or all of the above? I did not start out life automatically reaching for conclusion of belief 
 on the darkness of humanity, the inevitable betrayals based on foundations promised in talk and writing 
 but fallacious in actuality. I do not intend to trouble myself with answering to the unknown when to 
-answer means to blindly submit. This intent does not rest on Tabulavasa. It is indeed based on the 
-a person's psychology of thinking they already know what they want, based on spotty information reframed 
-into empiricism for embarking on objectives. Is it insane to think that the minds of every person that 
+answer means to blindly submit. This intent does not rest on Tabulavasa. It is indeed based on a person's 
+psychology of thinking they already know what they want, based on spotty information reframed into 
+empiricism for embarking on objectives. Is it insane to think that the minds of every person that 
 matters have already been at least half-made up? That's the question, not just for me. 
 
 **If you make a humble man feel like a stranger in his own country, he'll resign in the 
