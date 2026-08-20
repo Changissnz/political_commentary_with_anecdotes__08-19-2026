@@ -74,12 +74,12 @@ were a haphazard mixture of apologism, statism, and anchorage dragging down the 
 And American Democratic policies really did keep big money concentrated in the same hands. 
 Therefore, I think Democratic policies did a better job of lying about modern contemporaries 
 to the United Fruit Company and the East India Tea Company than the Republicans have been. They 
-attempted to integrate them into statist governance, instead of allowing for gambling spirits and 
-proto-feudalism to become the thing, the mark of rulers and champions alike. I'm not going to 
-take any more steps in advancing this claim, after reviewing the fact that some decisions are 
-taken from circumstantial stress. Everyone, leaders and subjects, bends to stress, but not in 
-the same way. The question is, is political affiliation a reliable variable in predicting how 
-circumstantial stress affects decision-making? 
+attempted to integrate them into quasi-statist governance superceding the federal state, instead of 
+allowing for gambling spirits and proto-feudalism to become the thing, the mark of rulers and 
+champions alike. I'm not going to take any more steps in advancing this claim, after reviewing 
+the fact that some decisions are taken from circumstantial stress. Everyone, leaders and subjects, 
+bends to stress, but not in the same way. The question is, is political affiliation a reliable variable 
+in predicting how circumstantial stress affects decision-making? 
 
 **The death of Western liberalism means the death of perspective wanting to keep matters open-ended.** 
 Here is a multiple choice question. Would that be prejudice, a defense mechanism, ignorance, all of the 
