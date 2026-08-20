@@ -4,6 +4,10 @@
 The fourth and last in this series "Political Commentary with Anecdotes", by Richard Pham. 
 ------------------------------------------------------------------------------------------
 
+Here are the [first](https://github.com/Changissnz/political_commentary_with_anecdotes__08-09-2026),
+[second](https://github.com/Changissnz/political_commentary_with_anecdotes__08-14-2026), and 
+[third](https://github.com/Changissnz/political_commentary_with_anecdotes__08-16-2026) articles. 
+
 It is about 9 PM, where I am at. This is in Charlotte County, FL. A little anomaly about half 
 an hour ago when I was biking to the convenience store. Just as I was passing a Planet 
 Fitness, there were two Asian females crossing the road to hop into a truck. One of them 
