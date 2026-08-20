@@ -9,7 +9,7 @@ an hour ago when I was biking to the convenience store. Just as I was passing a 
 Fitness, there were two Asian females crossing the road to hop into a truck. One of them 
 said to the other "[BLAH BLAH BLAH] Chut Mae [BLAH BLAH BLAH]" before they entered the 
 vehicle. "Chut Mae" is Vietnamese for "mother dies", which translates to something like 
-"mother fucker" in the English language. 
+"mother fucker" (accusatory) or "God damn it" (exclamatory) in the English language. 
 
 **I can understand Unterlang.** You know how in biology, there are certain traits in an 
 organism that become vestigial (remnant, relic) through evolution? That's how I sort of 
